@@ -78,9 +78,9 @@ So dear investor, dear reader, dear dreamer:
 
 ## 📬 Contact
 
-- Email: yourname@example.com  
-- LinkedIn: [linkedin.com/in/yourname](https://linkedin.com/in/yourname)  
-- Phone: +123 456 7890  
+- Email: malebotroy@gmail.com  
+- LinkedIn: https://www.linkedin.com/in/malebo-thathana  
+- Phone: +27 81 210 7598
 - Motto: *Making job applications less tragic, one tap at a time.*
 
 ---
